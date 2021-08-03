@@ -1,2 +1,2 @@
 # MEME.LORD
-MEME
+MEME good
